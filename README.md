@@ -1,1 +1,1 @@
-# Curr-culo-Atualizado
+# Currículo-Atualizado
